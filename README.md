@@ -5,7 +5,7 @@ Welcome to the journey of our **B.Tech 1st Year Orientation Program 2025** at **
 
 ---
 
-## 📅 Day 1 – 1st August 2025 (Thursday)
+## 📅 Day 1 – 31st July 2025 (Thursday)
 
 The day began with a spiritual and peaceful **Kirtan at Gurudwara Sahib 🕌**, invoking blessings and positivity as we embarked on this new chapter.
 
@@ -22,7 +22,7 @@ The auditorium was filled with a sense of motivation, pride, and curiosity for t
 
 ---
 
-## 📅 Day 2 – 2nd August 2025 (Friday)
+## 📅 Day 2 – 1st August 2025 (Friday)
 
 We had two important proficiency tests today to assess and improve our academic strengths:
 
@@ -42,7 +42,7 @@ It was a knowledgeable session, reminding us how food directly affects academic 
 
 ---
 
-## 📅 Day 3 – 3rd August 2025 (Saturday)
+## 📅 Day 3 – 2nd August 2025 (Saturday)
 
 Today's focus was on **campus infrastructure and digital learning tools**.
 
@@ -59,7 +59,7 @@ The session helped us understand how to utilize digital tools for academic succe
 
 ---
 
-## 📅 Day 4 – 4th August 2025 (Sunday)
+## 📅 Day 4 – 3rd August 2025 (Sunday)
 
 It was a relaxed day yet highly inspiring. We had guest lectures by industry and academic experts.
 
@@ -75,7 +75,7 @@ It was a relaxed day yet highly inspiring. We had guest lectures by industry and
 
 ---
 
-## 📅 Day 5 – 5th August 2025 (Monday)
+## 📅 Day 5 – 4th August 2025 (Monday)
 
 Today we had interactive sessions focused on **career building and personality development**.
 
@@ -91,7 +91,7 @@ This day truly helped us understand the roadmap from first year to placement and
 
 ---
 
-## 📅 Day 6 – 6th August 2025 (Tuesday)
+## 📅 Day 6 – 5th August 2025 (Tuesday)
 
 A vibrant and enjoyable day! 🌈
 
