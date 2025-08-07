@@ -22,10 +22,10 @@ The auditorium was filled with a sense of motivation, pride, and curiosity for t
 
 ---
 ![image.alt](https://github.com/vikashkumar7777/INDUCTION/blob/6b79997fe546b8809f07e63426a731c097386501/induction_1.jpg)
-![image.alt]
-![image.alt]
-![image.alt]
-![image.alt]
+![image.alt](https://github.com/vikashkumar7777/INDUCTION/blob/10eee4a7c6c2bbc0efc48c9c9d8ac1231e8c4ef1/induction_2.jpg)
+![image.alt](https://github.com/vikashkumar7777/INDUCTION/blob/10eee4a7c6c2bbc0efc48c9c9d8ac1231e8c4ef1/induction_3.jpg)
+![image.alt](https://github.com/vikashkumar7777/INDUCTION/blob/10eee4a7c6c2bbc0efc48c9c9d8ac1231e8c4ef1/induction_4.jpg)
+![image.alt](https://github.com/vikashkumar7777/INDUCTION/blob/10eee4a7c6c2bbc0efc48c9c9d8ac1231e8c4ef1/induction_5.jpg)
 ## 📅 Day 2 – 1st August 2025 (Friday)
 
 We had two important proficiency tests today to assess and improve our academic strengths:
