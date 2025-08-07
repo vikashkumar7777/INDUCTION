@@ -21,7 +21,11 @@ Later, the main orientation program was held in the college **auditorium**, wher
 The auditorium was filled with a sense of motivation, pride, and curiosity for the journey ahead. 🏫✨
 
 ---
-
+![image.alt](https://github.com/vikashkumar7777/INDUCTION/blob/6b79997fe546b8809f07e63426a731c097386501/induction_1.jpg)
+![image.alt]
+![image.alt]
+![image.alt]
+![image.alt]
 ## 📅 Day 2 – 1st August 2025 (Friday)
 
 We had two important proficiency tests today to assess and improve our academic strengths:
